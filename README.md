@@ -2,7 +2,7 @@
 - 👀 I’m interested in Woman.
 - 🌱 I’m currently learning everything.
 - 💞️ I’m looking to collaborate on earning money.
-- 📫 How to reach me, please don't look for me unless it makes money.
+- 📫 How to reach me: please don't look for me unless it makes money.
 - ⚡ Fun fact: I can't code.
 
 <!---
